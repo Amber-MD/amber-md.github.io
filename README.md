@@ -1,1 +1,1 @@
-Official website: [ambermd.org](ambermd.org)
+Official website: [ambermd.org](http://ambermd.org/)
